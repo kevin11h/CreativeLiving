@@ -11,3 +11,5 @@ Tree House
 + http://www.businessinsider.com/how-millennials-live-in-san-francisco-2017-2#micah-and-dianna-baylor-one-of-several-couples-who-call-commons-san-francisco-location-home-hopped-between-16-different-airbnbs-rentals-before-trying-co-living-24
 
 + https://www.mercurynews.com/2017/11/03/cant-afford-housing-you-could-move-into-shipping-container/
+
++ https://www.sfchronicle.com/business/networth/article/Bay-Area-family-s-arduous-quest-to-create-a-12532333.php
