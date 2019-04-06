@@ -4,6 +4,9 @@ Lifestyle Design
 Tree House
 
 # References
+
++ https://www.dwell.com/article/meet-the-prefab-unit-thats-smart-mobile-and-sustainable-5c2cafd3
+
 + https://www.thetinyhouse.net/alternatives-to-tiny-houses/
 
 + https://sparkrental.com/8-awesome-alternatives-to-traditional-housing-to-save-money-see-the-world/
