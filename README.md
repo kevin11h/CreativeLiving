@@ -22,3 +22,7 @@ Tree House
 + https://soup.is/blocks
 
 + https://www.seasteading.org/tag/cost-estimates/
+
++ Mansion
+
+https://www.quora.com/link/College-Kids-Are-Living-Like-Kings-in-Vancouver-s-Empty-Mansions/redirect
