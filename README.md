@@ -20,3 +20,5 @@ Tree House
 + https://www.sfchronicle.com/business/networth/article/Bay-Area-family-s-arduous-quest-to-create-a-12532333.php
 
 + https://soup.is/blocks
+
++ https://www.seasteading.org/tag/cost-estimates/
